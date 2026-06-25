@@ -7,6 +7,8 @@
 
 <br>
 
+<img align="right" src="https://i.pinimg.com/originals/f0/66/57/f06657ea7a56f1b397a340a2c789a19f.gif" width="260" />
+
 ### 💫 About Me
 
 *   🎂 **Born in 2005**
